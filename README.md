@@ -20,5 +20,11 @@ my grand parents are living separately
 I had a pet dog 
 my role model is mahendra singh dhoni
 I like him beaucse of his cool captaincy and his simplicity and his concern towards his fans
-iI am fan of is helicpoter shots
+I am fan of is helicpoter shots
+sir how much years taken for you to get perfect at python programming
+
+
+
+
+
 
