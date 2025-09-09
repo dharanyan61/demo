@@ -18,3 +18,7 @@ I have a sibling whose name is bavan
 My brother is studying 9th standard in carmel garden school
 my grand parents are living separately
 I had a pet dog 
+my role model is mahendra singh dhoni
+I like him beaucse of his cool captaincy and his simplicity and his concern towards his fans
+iI am fan of is helicpoter shots
+
